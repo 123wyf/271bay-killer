@@ -3,4 +3,4 @@
 [dreamqiu](https://www.dreamqiu.top)
 
 
-[vnc](198.52.125.180:9980)
+[vnc](www.dreamqiu.top:9980)
