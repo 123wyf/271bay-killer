@@ -2,7 +2,7 @@
 
 [dreamqiu](https://www.dreamqiu.top)
 
-[tensafe](https://wwz.lanzouy.com/b017j0ghg)
+[tensafe](https://wwz.lanzouy.com/b017wcjbi)
 
 [resuse](https://nimble-sorbet-a3ea84.netlify.app/)
 
